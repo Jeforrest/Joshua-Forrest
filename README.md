@@ -9,4 +9,4 @@ I am very interested in participating in any outsourcing projects or freelance w
 
 I am well versed in Excel, Python, PostgreSQL, Tableau, and PowerBI.  I am a critical thinker and particularly enjoy exploratory data analysis.
 
-I
+Looking forward to networking and meeting some like minded people.
